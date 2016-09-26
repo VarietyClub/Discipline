@@ -5,11 +5,15 @@
 
 *Camera straight on*
 
-I am going to share what I have learned about the discipline of communication, so that you can make your ideas, your memes, be listened to, understood, and shared beyond your personal network.  This channel will be designed to help you discover how to get people to pay attention to what you are saying and be impactful enough that become willing to change... change what they believe, change what they do- at its core if you want to change some tiny part of the world, you must be better than everyone else at communicating the value of accepting your ideas. If someone is better than you, their memes, not yours, will spread.
+I believe that communication is a discipline; once it is honed to a master level craft it can engineer ideas to be understood, agreed with and acted upon to affect change in any network it is focused on.
 
-I am dedicating myself to this project because I am personally committed to extinguishing the fear that is actively spread into society wherever certain people see that they can profit not by creating something of value, but instead by offering a less effective alternative- they raise the value of what they have by stoking fear about other things.  
+I am going to share what I know about the discipline of communication, so that you can make your ideas, be listened to, understood, and shared beyond your personal network.  This channel will be designed to help you discover how to get people to pay attention to what you are saying and be impactful enough that they become willing to change... change what they believe, change what they do- because if you want to change some tiny part of the world, you must be better than everyone else at communicating the value of accepting your ideas. If someone is better than you, their memes, not yours, will spread.
 
-So this channel will be about constructing presentations, meeting stangers when you are in new places, engineering your networks to find better ideas; because if I can help you master the discipline of communications, then you can go out compete this fear mongering as well.  
+I am dedicating myself to this project because I am personally committed to extinguishing the fear that is actively spread into society wherever certain people see that they can profit not by creating something of value, but instead by offering a less effective alternative- they raise the value of what they have by stoking fear about other things. 
+
+We all have values, or "oughts" that we want to see in the world.  I beleive that we "ought" to make societal decisions based on what science based evidence suggests, and I believe that we "ought" to lower the amount of violence needed to ensure cooperation.  But you don't need to share my values to get something out of this channel; I will try to share heursitics which can show you how to thrive in all circumstances where commuincating your ideas matter.
+
+So this channel will be about constructing presentations people love to listen to, meeting stangers when you are in new places, making your point understood in meetings, engineering your networks so that you can find better ideas; because if I can help you master the discipline of communications, then your best ideas will ries to the surface and everyone is better off.  
 
 *Image on screen: show me standing up next to "The Man on the Box" slide*
 
